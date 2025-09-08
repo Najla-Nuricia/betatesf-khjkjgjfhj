@@ -1,2 +1,2 @@
-nama : najla nuricia
+nama : najla nuricia 
 nim  : 
